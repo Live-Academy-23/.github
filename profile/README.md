@@ -36,7 +36,7 @@ Live Academy offers a subscription at **\$197 per month**, which includes:
 
 While the price point is on the higher side, the value lies in the comprehensive support and resources provided, which can significantly enhance a creator's live selling capabilities.
 
-[Join Live Academy Now to Elevate Your TikTok Live Selling Skills](https://kelexbawz.com/live-academy)
+[Join Live Academy Now to Elevate Your TikTok Live Selling Skills](https://whop.com/social-army-live-academy?a=kelechienwere1234)
 
 ---
 
@@ -61,7 +61,7 @@ The program's inclusive approach ensures that creators at different levels can b
 * **Practical Tools:** Utilize the Live App for resources that streamline your live selling process.
 * **Continuous Learning:** Stay updated with the latest trends and strategies through regular replays and updates.
 
-[Join Live Academy Now to Access Expert Coaching and Resources](https://kelexbawz.com/live-academy)
+[Join Live Academy Now to Access Expert Coaching and Resources](https://whop.com/social-army-live-academy?a=kelechienwere1234)
 
 ---
 
@@ -79,7 +79,7 @@ It's essential to consider these factors in relation to your personal goals and 
 
 Social Army, the organization behind Live Academy, specializes in training creators for success on platforms like TikTok. Their expertise in short-form content and live selling positions them as a credible source for aspiring TikTok Shop sellers.
 
-[Join Live Academy Now to Learn from Industry Experts](https://kelexbawz.com/live-academy)
+[Join Live Academy Now to Learn from Industry Experts](https://whop.com/social-army-live-academy?a=kelechienwere1234)
 
 ---
 
@@ -105,7 +105,7 @@ For instance, one user mentioned:
 
 Such testimonials highlight the program's potential impact on a creator's success.
 
-[Join Live Academy Now to Transform Your Live Selling Experience](https://kelexbawz.com/live-academy)
+[Join Live Academy Now to Transform Your Live Selling Experience](https://whop.com/social-army-live-academy?a=kelechienwere1234)
 
 ---
 
@@ -115,6 +115,6 @@ Live Academy offers a comprehensive and supportive environment for creators aimi
 
 While the investment is considerable, the potential returns—in terms of skills, confidence, and sales—make it a worthwhile consideration for serious creators.
 
-[Join Live Academy Now to Start Your Journey to Live Selling Success](https://kelexbawz.com/live-academy)
+[Join Live Academy Now to Start Your Journey to Live Selling Success](https://whop.com/social-army-live-academy?a=kelechienwere1234)
 
 ---
